@@ -1,1 +1,1 @@
-Experience 2 here
+My second experience was moving in with my roomates. This happened during September of 2024. I enjoyed this experience because I like to spend time with all my friends and be surrounded by like minded people. My favourite memory thus far is always our late night convos in our common room. One thing I didnt enjoy is when some people would go home, the house would feel empty. I would give this experience an A. 

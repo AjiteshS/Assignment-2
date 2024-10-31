@@ -1,1 +1,1 @@
-Experience 3 here
+Another experience of mine was my internship working at LocalStudent during the summer of 2024. I enjoyed this experience because it was a chance for me to experience working in the real world. My favourite memories were the team socials that happened downtown. Something I didnt like was that my internship was remote and staying at home on most days was pretty boring. I would give this experience an A. 

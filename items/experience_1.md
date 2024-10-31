@@ -1,1 +1,1 @@
-Experience 1 here
+I was a lifeguard for the City of Mississuaga for close to 2 years during 2022-2024. What I enjoyed about this experience was that I was able to make a lot of new friends and connections within my community. My favourite memory was working during the summer and having all kids pass their course. At times, I didnt enjoy it because the water would often be cold. I would give this experience an A. 

@@ -1,1 +1,1 @@
-Experience 5 here.
+My last experience is being part of BTMSA. I have been on BTMSA for the past year and a half. I enjoy this club because it allows me to speak with and network with like minded individuals in my program. My favourite memory thus far has been our social event that we threw at Hudson. One thing I didnt like was that we often had meetings where nothing was accomplished. I would rate this experience a B. 
